@@ -1,1 +1,1 @@
-# Wir-iPhone12.githup.io
+# Wir-iPhone12.github.io
